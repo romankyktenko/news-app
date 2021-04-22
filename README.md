@@ -1,0 +1,1 @@
+With this app you cat get fresh news from all over the world
